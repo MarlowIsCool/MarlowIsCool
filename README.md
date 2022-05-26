@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MarlowIsCool
-- 👀 I’m interested in hleping people like you lol
+- 👀 I’m interested in helping people like you lol
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on game cheats
 - 📫 How to reach me BEN_SPEEDY@outlook.com
